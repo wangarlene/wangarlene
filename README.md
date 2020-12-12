@@ -1,6 +1,6 @@
 ### :woman_technologist: Hi, I'm Arlene!
 
-*:bulb: On my gap year, I'm trying new things, making mistakes and learning from them.*
+*:bulb: On my gap year, I'm making mistakes and learning from them.*
 
 See what I'm up to at [arlenewang.me](https://arlenewang.me)!
 
