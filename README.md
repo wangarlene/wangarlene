@@ -1,7 +1,6 @@
 ### :woman_technologist: Hi, I'm Arlene!
 
-*:bulb: Prospective Computer Science and Sociology Major @ University of Toronto
-
+*:bulb: Prospective Computer Science and Sociology Major @ University of Toronto*
 
 
 *:incoming_envelope: Let's talk!*
